@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @evacoffee
+- 👀 I’m interested in coding, photography, music (laufey) and food ✨
+- 💞️ I’m looking to collaborate on projects 
+- 📫 How to reach me evmaagca@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I play gutair and clarinet ✨
+
+<!---
+evacoffee/evacoffee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
