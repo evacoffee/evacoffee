@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @evacoffee
-- 👀 I’m interested in coding, business, photography, music (laufey, aespa, mitski, katseye) and food ✨
+- 👀 I’m interested in coding, business, photography, music (laufey, aespa, le sserafim, mitski, katseye) and food ✨
 - 💞️ I’m looking to collaborate on projects 
 - 📫 How to reach me evmaagca@gmail.com
 - 😄 Pronouns: she/her
